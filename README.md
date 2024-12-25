@@ -1,1 +1,1 @@
-# everybody-codes-2024
+# Everybody codes 2024
